@@ -1,0 +1,3 @@
+Must Read Book for APM:
+
+https://productschool.com/download/ebooks/the-product-book-en?content=trigger&mkt_tok=ODgwLURWRi0yMjQAAAGarORK-qf_cXdTOrKBBF7A7FkkOTVAzKqtbH5G5tZgTwL4h5K57v3xK4G8jNF9tMQfMiqYMPVHiq5NiDKQmMPx0HiGFzN1_YcHe46EPt0
